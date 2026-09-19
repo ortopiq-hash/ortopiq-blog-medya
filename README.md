@@ -1,0 +1,1 @@
+# ortopiq-blog-medya
